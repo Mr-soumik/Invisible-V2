@@ -36,7 +36,7 @@
 | Platform | Link |
 |---|---|
 | ▶ YouTube | [Watch on YouTube](https://youtube.com/@techtadka360official?si=ruZRTdkm4whLacnu) |
-| 📸 Instagram | [Watch on Instagram]([https://instagram.com/YOUR_HANDLE](https://www.instagram.com/techtadka360official?rpxt=cWR4bnhjdWw1MHdh)) |
+| 📸 Instagram | [Watch on Instagram](https://www.instagram.com/techtadka360official?rpxt=cWR4bnhjdWw1MHdh) |
 | 📘 Facebook | [Watch on Facebook](https://www.facebook.com/share/1JTPQ3GWBm/) |
 
 ---
